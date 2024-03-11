@@ -2,7 +2,7 @@
 - 👀 I’m interested in almost everything.
 - 🌱 I’m currently learning anything that sparks my interest.
 - 📫 How to reach me: just ask.
-- 😄 Pronouns: old, retired, curious, eager.
+- 😄 Pronouns:  curious, creative, retired, born-1950
 
 <!---
 2022PLAID/2022PLAID is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
